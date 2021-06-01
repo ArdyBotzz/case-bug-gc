@@ -1,5 +1,5 @@
-##🗿 CASE BUGGC
+#🗿 CASE BUGGC
 Bugnya jan salah gunain !!!
  
-##🖕🏻 BUAT YG IRI
+#🖕🏻 BUAT YG IRI
 Bodo Amat 😏
