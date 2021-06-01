@@ -1,2 +1,5 @@
-# case-bug-gc
-Bugnya kawan, jan salah gunain !!!
+##🗿 CASE BUGGC
+Bugnya jan salah gunain !!!
+ 
+##🖕🏻 BUAT YG IRI
+Bodo Amat 😏
